@@ -1,1 +1,1 @@
-# Intelig-ncia-Computacional-Aplicada
+# Inteligência-Computacional-Aplicada
